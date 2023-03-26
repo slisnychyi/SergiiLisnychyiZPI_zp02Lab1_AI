@@ -1,0 +1,1 @@
+# SergiiLisnychyiZPI_zp02Lab1_AI
